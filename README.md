@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @anisaviia
 - 👀 I’m interested in working team or individual.
-- 🌱 I’m currently learning photo genic, cashier, supervisor.
+- 🌱 I’m currently learning photogenic, cashier and supervisor.
 - 💞️ I’m looking to collaborate on all community.
 - 📫 How to reach me Wa/Dm.
 - 😄 Pronouns: she/her.
